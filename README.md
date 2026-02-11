@@ -31,7 +31,7 @@ Image Credit: [Indian Healthy Recipes](https://www.indianhealthyrecipes.com/fish
 
 2. Creamy Broccoli Potato Soup
 
-Recipe & Image Source: [ACoupleCooks](ttps://www.acouplecooks.com/healthy-recipes/).
+Recipe & Image Source: [ACoupleCooks](https://www.acouplecooks.com/healthy-recipes/).
 
 3. Pounded Yam and Egusi Soup
 
